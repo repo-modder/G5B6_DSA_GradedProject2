@@ -1,0 +1,1 @@
+Architect Problem solution
